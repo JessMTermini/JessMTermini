@@ -3,7 +3,7 @@
 # About Me
 
 ### My Life Currently:
-- 🔭 I am currently working on many multi-faceted personal development projects that I hope one day will help to catalyze many production ready & socially responsible environments I feel most necessary for the good of all at his time. Currently these projects are in their design stage and are not yet ready to be brought to the fore.
+- 🔭 I am currently working on many multi-faceted personal development projects that I hope one day will help to catalyze many production ready & socially responsible environments I feel most necessary for the good of all life on this planet at this time. Currently these projects are in their design stage and are not yet ready to be brought to the public.
 - 🌱 My current focus is on learning linux, javascript, react, express, redux, node, electron, three.js, webgl, webassembly, prisma, docker, python automation, ML, and dabbling every which way in all new technologies, including edge cases, everything from creating an entirely new & custom OS to cross platform desktop development and of course then, development specifically for the web. I'm not so interested in mobile at this time. I think web can handle it. 
 - 👯 I’m looking to collaborate on creating a new open source social media platform for many a community, but without saying too much, one with focus being on a specific subsections of the medical community.
 - 🤔 I’m looking for help with all facets of development as it pertains to all of the above.
