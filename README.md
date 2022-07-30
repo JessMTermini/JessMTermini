@@ -7,7 +7,7 @@
 - 🧮 **My current focus** is on learning linux 🎛️🎚️, javascript ⌨️, react, express🖍️, redux, node, electron 🔋, three.js, webgl 🖲️, webassembly, prisma, docker, python 🖱️ automation, ML 🧠, and dabbling every which way in all new technologies 🧬🧪🔬🔑, including edge 🤖 cases, everything from creating an entirely new & custom ⚙️ OS to cross platform desktop 🖥️ development and of course then, development specifically for the web 🌐. I'm not so interested in mobile 📱 at this time. I think web 💻 can handle it. 
 - 🤑 I’m looking to **collaborate** on creating a new open source social media platform for many a community, but without saying too much, one with focus being on specific subsections of the medical 🩻 community.
 - 🤔 I’m looking for help with all facets of development as it pertains to all of the above.
-- 💬 Ask me about anything.
+- 💬 Ask me about anything. REALLY, ...anything.
 - 📫 You can **reach me** on [Linkedin](https://www.linkedin.com/in/jessicatermini/).
 - 😁 People call me Jesci, or Jesci Ty. (Pronounced: Jessie/Jessy T./Ty/Tee)
 - 🔮 **Fun fact**: I have been reading Tarot 🃏 Cards since the age of 15. The first time I ever picked them up, without ever reading a book or ever seeing even one card before, I predicted the next year and a half of my life. It scared 🤯 me so much I didn't pick them back up for over a year and a half, after which all the predictions proved to be true as they all, one by one, came true. In the exact order they were even predicted. Ever since the I have held a special affinity for them as they truly opened my eyes to another very real realm 😱👻👽! 
