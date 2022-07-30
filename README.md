@@ -16,7 +16,7 @@ One day I would also like to incorperate them 🃏 into my programming as well. 
 
 - More About Me: I taught myself graphic 🎨🖥️ design back in 2009. I have been immersed in both design and software 💾 development since approx. 2011 when I learned how to create my very first website using plain old jquery, html and css. I am a cancer survivor and Navy ⚓ Veteran, with an expert 🏆 shot on a 9mm and 🥈 marksmith shot on a shotgun! I was born and raised in Long Island, 🗽 NY, but have also temporarily lived in both Italy 🇮🇹, & Connecticuit 🇺🇲. I loved them both. Both were very beautiful and I look forward to the day I'll be able to go back, even if just for a visit ✈️.
 
-🕯️🙏  Namaste! 🙏🕯️🌈🌬️💨✨
+🕯️🙏  Namaste! 🙏🕯️ to 🌈🌬️💨✨ YOU!
 
 
 ![visitors](https://visitor-badge.glitch.me/badge?page_id=JessMTermini.JessMTermini)
