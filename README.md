@@ -10,13 +10,13 @@
 - 💬 Ask me about anything. Really, ...anything.
 - 📫 You can **reach me** on [Linkedin](https://www.linkedin.com/in/jessicatermini/).
 - 😁 People call me Jesci, or Jesci Ty. (Pronounced: Jessie/Jessy T./Ty/Tee)
-- 🔮 **Fun fact**: I have been reading Tarot 🃏 Cards since the age of 15. The first time I ever picked them up, without ever reading a book or ever seeing even one card before, I predicted the next year and a half of my life. It scared 🤯 me so much I didn't pick them back up for over a year and a half, after which all the predictions proved to be true as they all, one by one, came true. In the exact order they were even predicted. Ever since the I have held a special affinity for them as they truly opened my eyes to another very real realm 😱👻👽! 
+- 🔮 **Fun fact**: I have been reading Tarot 🃏 Cards since the age of 15. The first time I ever picked them up, without ever reading a book or ever seeing even one card before, I predicted the next year and a half of my life. It scared 🤯 me so much I didn't pick them back up for over a year and a half, after which all the predictions proved to be true as they all, one by one, came true, in the exact order they were even predicted! Ever since then I have held a special affinity for them as they truly opened my eyes to another very real realm 😱👻👽! 
 
 One day I 🧙 would also like to incorperate ✨ them 🃏 into my programming 🧑‍💻 as well. I have a few ideas of what I'd like to build. If only there were time to build them all!! **If anyone feels called 📳 to reach out 📢, please do! I'd love to hear 👂 any ideas 💡 you have or even just have a ⌨️🖱️ code 🤖 and 😇🌌🔭 spiritual 🪬 chat!!** 💯💯
 
-- **More About Me**: I taught myself graphic 🎨🖥️ design back in 2009. I have been immersed in both graphic design 🖼️ and software 💾 development since approx. 2011 when I learned how to create my very first website using plain old jquery, html and css. I am a cancer survivor and Navy ⚓ Veteran, have an expert 🏆 shot with a 9mm and 🥈 marksmith with a shotgun! I was born 👶🏼 and raised in Long Island, 🗽 NY, but have also temporarily lived in both Italy 🇮🇹, & Connecticuit 🇺🇲. I loved 💕 them both. Both were very beautiful and I look forward to the day I'll be able to go back, even if just for a visit ✈️.
+- **More About Me**: I taught myself graphic 🎨🖥️ design back in 2009. I have been immersed in both graphic design 🖼️ and software 💾 development since approx. 2011 when I learned how to create my very first website using plain old jquery, html and css. I am a cancer 🙏 survivor 💪 and Navy ⚓ Veteran, have an expert 🏆 shot with a 9mm and 🥈 marksmith with a shotgun! I was born 👶🏼 and raised in Long Island, 🗽 NY, but have also temporarily lived in both Italy 🇮🇹, & Connecticuit 🇺🇲. I loved 💕 them both. Both were very beautiful and I look forward to the day I'll be able to go back, even if just for a visit ✈️.
 
-🧿 **🕯️🙏  Namaste! 🙏🕯️ to 🌈🌬️💨✨ YOU!** 🧿
+🧿 **🕯️🙏  Namaste! 🙏🕯️ to 🌈🌬️💨✨ YOU 🫵 !** 🧿
 
 
 ![visitors](https://visitor-badge.glitch.me/badge?page_id=JessMTermini.JessMTermini)
